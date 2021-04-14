@@ -9,3 +9,4 @@
 
 ⚡ Fun fact: I hate chocolate but I like nutella tho.
 
+⚡ Another one: I am an idiot 14 year old.
